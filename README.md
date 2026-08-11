@@ -25,8 +25,8 @@ Estudiante de **Administración de las Organizaciones (UDG)** especializado en t
 
 ### 📫 ¡Hablemos!
 
-* 💼 **LinkedIn:** [Daniel Cruz Martínez](https://www.linkedin.com/in/danielo-cruz)
-* 📧 **Correo:** danielocutus@gmail.com
+* 💼 **LinkedIn:** [Daniel Cruz Martínez](https://www.linkedin.com/in/daniel-osvaldo-cruz-mart%C3%ADnez-8b65a5323/)
+* 📧 **Correo:** [danielocutus@gmail.com](mailto:danielocutus@gmail.com)
 
 
 
